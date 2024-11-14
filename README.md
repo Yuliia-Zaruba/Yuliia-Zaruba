@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yuliia-Zaruba
+- 👋 Hi, I’m @Liia
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning in Deutsch VHS
 - 💞️ I’m looking to collaborate on ...
